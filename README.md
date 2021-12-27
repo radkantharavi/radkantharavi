@@ -2,7 +2,7 @@
 
 I'm a student of business analytics, learning to apply my expertise in data analysis, business intelligence in real-world business challenges. I have a keen interest in financial analytics, climate finance, deploying machine learning applications. Outside of my academic pursuits, I enjoy. . 
 
-•	:ocean: Scuba Diving and these days I stick to studying decompression theory extensively because I’m not in a tropical diving environment anymore along with not being dry-suit certified. 
+•	:ocean: Scuba Diving, but I stick to studying decompression theory these days because I’m not in a tropical diving environment. Need to work on my dry-suit specialization. 
 
 •	🤸 Yoga. Currently working on my instructor’s license. 
 

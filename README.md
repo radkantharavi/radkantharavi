@@ -1,16 +1,13 @@
-### Hi there 👋
+👋 Hi, I'm Radhika Ravichandran. 
 
-<!--
-**ravrad/ravrad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm a student of business analytics, learning to apply my expertise in data analysis, business intelligence in real-world business challenges. I have a keen interest in financial analytics, climate finance, deploying machine learning applications. Outside of my academic pursuits, I enjoy. . 
 
-Here are some ideas to get you started:
+•	:ocean: Scuba Diving and these days I stick to studying decompression theory extensively because I’m not in a tropical diving environment anymore along with not being dry-suit certified. 
+•	🤸 Yoga. Currently working on my instructor’s license. 
+•	:runner: Running, need inspiration to push and train for triathlons sooner than later.
+•	:oncoming_automobile: Driving and cars. 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+📬Connect with Me📬
+You can email me on rravic12@asu.edu or hit me up on LinkedIn - www.linkedin.com/in/radhikakravi.
+
+

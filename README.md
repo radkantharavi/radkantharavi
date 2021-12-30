@@ -4,7 +4,7 @@ I'm a student of business analytics, learning to apply my expertise in data anal
 
 •	:ocean: Scuba Diving. I am studying decompression theory rather than being underwater these days because I’m not in a tropical diving environment. Need to work on my dry-suit specialization. 
 
-•	🤸 Yoga. Powering me fore the last 15 years. 
+•	🤸 Yoga. Powering me for the last 15 years. 
 
 •	:runner: Running, looking for a triathlon training buddy in Greater Phoenix Area.
 

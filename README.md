@@ -8,12 +8,13 @@ I'm a student of business analytics, learning to apply my expertise in data anal
 
 •	:runner: Running, also looking for a triathlon training buddy in Tempe/Phoenix.
 
-•	:oncoming_automobile: Long drives and road trips. 
 
 
 
 
 📬Connect with Me📬
-You can email me on rravic12@asu.edu or hit me up on LinkedIn - www.linkedin.com/in/radhikakravi.
+You can email me on rravic12@asu.edu or hit me up on LinkedIn - www.linkedin.com/in/radhikakravi. I am actively looking for job opportunities starting May 2022. 
+
+Do feel free to send pull requests for projects here that you'd like to collaborate with me on. 
 
 

@@ -1,6 +1,6 @@
 👋 Hi, I'm Radhika Ravichandran. 
 
-I'm a student of business analytics, learning to apply my expertise in data analysis & business intelligence in real-world business challenges. I have a keen interest in financial analytics, climate finance and deploying machine learning applications. Outside of my academic pursuits, I enjoy. . 
+I'm learning to apply my expertise in data analysis & business intelligence in real-world business challenges, through my master's program in Business Analytics. I have a keen interest in financial analytics, climate finance and deploying machine learning applications. Outside of my academic pursuits, I enjoy. . 
 
 • :mountain_bicyclist: Hiking. Grateful for countless trails here in AZ, so many that I know I wouldn't be able to hike them all. 
 
